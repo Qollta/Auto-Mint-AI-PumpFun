@@ -1,0 +1,1 @@
+# Auto-Mint-AI-PumpFun
